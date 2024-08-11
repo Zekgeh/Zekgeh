@@ -1,4 +1,4 @@
-### Hi I'm Ezekiel. Currently engaged with managing research databases. I am looking forward to collaborate with experts in coordinating research study data set ups
+### Hi I'm Ezekiel. Currently engaged with data management and analysis of clinical/research study data. I am looking forward to collaborate with experts in coordinating research study data set ups
 
 <!--
 **Zekgeh/Zekgeh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
