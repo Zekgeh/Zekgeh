@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi I'm Ezekiel. CurrentlY engaged with managing research databases as well as phase 1,2 3 clinical trials. I am looking forward to collaborate with experts in coordinating research study data set ups
 
 <!--
 **Zekgeh/Zekgeh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
